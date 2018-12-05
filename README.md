@@ -1,1 +1,1 @@
-veamos ultim
+veamos ultim dupli
